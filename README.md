@@ -1,0 +1,1 @@
+[my CV](https://alurity.github.io/rsschool-cv/cv)
